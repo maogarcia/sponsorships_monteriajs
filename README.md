@@ -30,7 +30,7 @@ Como patrocinador Premium usted recibe los siguientes beneficios.
 * Logotipo de la empresa o imagen del producto incluida en el correo de los participantes al evento. 
 * Disponibilidad por parte del equipo organizador de la comunidad **MonteríaJS** para brindar hasta 2 charlas sobre nuevas    tecnologías y tecnología en general a sus empleados.
 
-## Patrocinio platinum
+## Patrocinio Platinum
 **Costo: $400.000 Duración: 2 Eventos.** . Este patrocinio tiene vigencia por dos eventos después de realizada la donación. Contribuye con el gasto de logística del evento,Infraestructura además de los refrigerios (snacks y bebidas). 
 
 Como patrocinador Platinum usted recibe los siguientes beneficios. 
@@ -43,7 +43,7 @@ Como patrocinador Platinum usted recibe los siguientes beneficios.
 * Disponibilidad por parte del equipo organizador de la comunidad **MonteríaJS** para brindar hasta una charla sobre nuevas    tecnologías y tecnología en general a sus empleados.
 
 
-## Patrocinio general   
+## Patrocinio General   
 **Costo: $200.000 Duración: 1 evento.** Este patrocinio tiene vigencia por un evento después de realizada la donación. Contribuye con el gasto de logística del evento.
 
 Como patrocinador general  usted recibe los siguientes beneficios. 
